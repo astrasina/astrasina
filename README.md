@@ -1,15 +1,29 @@
+✧
+ ⢠⣤⣤⣀ ⠀⠀⠀⠀⠀⠀ ⣀⣤⣤⡄  
+⢸⣿⣿⣿⣿⣦⣄⣀⣠⣴⣿⣿⣿⣿⡇⠀⠀⠀⠀⊹  
+⣸⣿⣿⣿⣿⣿⡽⣿⣯⣿⣿⣿⣿⣿⣇  
+⢻⣿⣿⣿⠿⣻⣵⡟⣮⣟⠿⣿⣿⣿⡟  
+⠀⠀⠀⠀⣼⣿⡿ ⠀⢿⣿⣷⡀  
+⊹⠀⣠⣾⣿⣿⠃ ⠀⠈⢿⣿⣿⣦⡀  
+⠀⠈⠉⠹⡿⠁⠀⠀⠀⠀⠈⢻⡇⠉⠉  
 
-<!--
-**astrasina/astrasina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ₊˚⊹
 
-Here are some ideas to get you started:
+just someone who *had* a lot hobbies but *d-word-ed* post-pandemic. **xoxo!**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## 🎀 more about > astrasina <
+
+✨ a **Computer Science** student **@ Tarlac State University** and currently at her junior year!  
+✨ lover of clean code and cute things and passionate about building a slightly chaotic side projects!  
+☕ thrives on caffeine 
+
+## 💌 contact me @
+
+**email:** [rosecastillomilar@gmail.com](mailto:rosecastillomilar@gmail.com)  
+**twitter:** [@astrasina](https://twitter.com/astrasina)  
+**instagram:** [@astrasina](https://instagram.com/astrasina)  
+
+
+---
+
+> *may your semicolons be ever in place and your bugs always be feature-leaning* 💖
