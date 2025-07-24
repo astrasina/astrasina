@@ -26,4 +26,4 @@ just someone who *had* a lot hobbies but *d-word-ed* post-pandemic. **xoxo!**
 
 ---
 
-> *may your semicolons be ever in place and your bugs always be feature-leaning* 💖
+> *may your semicolons be ever in place* 💖
