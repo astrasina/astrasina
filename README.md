@@ -46,4 +46,4 @@ just someone who *had* a lot hobbies but *d-word-ed* post-pandemic. **xoxo!**
 
 ---
 
-*may your semicolons be ever in place 𐔌՞. .՞𐦯*
+*not a doctor. shh! 𐔌՞. .՞𐦯*
