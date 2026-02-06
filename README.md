@@ -26,7 +26,6 @@ just someone who *had* a lot hobbies but *d-word-ed* post-pandemic. **xoxo!**
 
 ## ᯓ★ more about ˗ˏˋ ☆ ― astrasina 
 
-જ⁀➴ a **Computer Science** student **@ Tarlac State University** and currently at her senior year!  
 જ⁀➴ lover of clean code and cute things and passionate about building a slightly chaotic side projects!  
 જ⁀➴ thrives on caffeine 
 
