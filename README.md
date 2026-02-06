@@ -29,19 +29,9 @@ just someone who *had* a lot hobbies but *d-word-ed* post-pandemic. **xoxo!**
 જ⁀➴ lover of clean code and cute things and passionate about building a slightly chaotic side projects!  
 જ⁀➴ thrives on caffeine 
 
-## ╰┈➤ github things ˎˊ˗
-<a href = "https://github.com/anuraghazra/github-readme-stats">
-  <img height = 300 src = "https://github-readme-stats.vercel.app/api/top-langs/?username=anuraghazra&layout=donut&theme=shadow_green" />
-</a>
-
-*big thanks to [anuraghazra](https://github.com/anuraghazra/github-readme-stats.git)!*
-
 ## ⌯⌲ contact me @
 
 **email:** [rosecastillomilar@gmail.com](mailto:rosecastillomilar@gmail.com)  
-**twitter:** [@astrasina](https://twitter.com/astrasina)  
-**instagram:** [@astrasina](https://instagram.com/astrasina)  
-
 
 ---
 
